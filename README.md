@@ -12,6 +12,7 @@ THINGS TO KNOW ABOUT ME!
 - multifandomist
 - haha me minor
 - i like playing and making games (on castle)
+- artist
 
 FANDOMS! (inspo : my pook bagel)
 - Regretevator
